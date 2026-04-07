@@ -1,1 +1,1 @@
-# MortgageCalculator.github.io
+google.com, pub-1114757923146718, DIRECT, f08c47fec0942fa0
